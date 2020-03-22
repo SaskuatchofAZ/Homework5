@@ -1,0 +1,1 @@
+Supposed to be a basic daily planner, had a bad week, ran out of time, turning in this big fat page of nothing just to avoid the missed assignment. Sorry to whichever TA grades this, I thought I would have more time to get it done.# Homework5
